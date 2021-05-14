@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @mohamedelsayedvc
+- 👀 I’m interested in automation
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on ...
+
+
